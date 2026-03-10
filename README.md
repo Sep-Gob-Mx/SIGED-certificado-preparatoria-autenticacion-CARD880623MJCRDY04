@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CARD880623MJCRDY04
+CARD880623MJCRDY04
